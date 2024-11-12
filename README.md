@@ -1,2 +1,2 @@
 # Pterodactyl-Freevps
-## Please Watch = 👉 https://www.youtube.com/@linuxnetworkinghelp/videos 👈
+## Please Watch = 👉www.youtube.com/@tgukgamingop 👈
